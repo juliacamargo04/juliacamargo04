@@ -4,6 +4,7 @@
 - 🌱 I’m currently learning ... aulas da Patricia
 - 💞️ I’m looking to collaborate on ... nada
 - 📫 How to reach me ... correndo
+- 😁 Se for um velho rico,favor mandar um pix!
 - :+1: Uiii
 <!---
 juliacamargo04/juliacamargo04 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
