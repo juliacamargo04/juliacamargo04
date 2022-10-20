@@ -1,5 +1,5 @@
 - # Sobre mim:
-- 🤠 Hi, I’m... @juliacamargo04
+- 🤠 Hi, I’m... Júlia C:
 - 🎉 I’m interested in ... nadinha
 - ✨ I’m currently learning ... aulas da Patricia
 - 💕 I’m looking to collaborate on ... nada
