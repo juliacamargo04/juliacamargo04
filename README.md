@@ -1,7 +1,7 @@
 - # Sobre mim:
 - 🤠 Hi, I’m... Júlia C:
 - 🎉 I’m interested in ... nadinha
-- ✨ I’m currently learning ... aulas da Patricia
+- ✨ I’m currently learning ... aulas sobre programação
 - 💕 I’m looking to collaborate on ... nada
 - 🏃‍♂️ How to reach me ... correndo
 - 😁 Se for um velho rico,favor mandar um pix!
