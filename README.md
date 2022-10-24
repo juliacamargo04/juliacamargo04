@@ -4,6 +4,7 @@
 - ✨ I’m currently learning ... aulas sobre programação
 - 💕 I’m looking to collaborate on ... nada
 - 🏃‍♂️ How to reach me ... correndo
+- 😎 Tentando apremder programação :)
 - 😁 Se for um velho rico,favor mandar um pix!
 - :+1: Uiii
 <!---
