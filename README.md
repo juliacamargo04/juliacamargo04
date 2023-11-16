@@ -1,8 +1,8 @@
 - # Sobre mim:
 - 🤠 Hi, I’m... Júlia C:
-- 🎉 I’m interested in ... nadinha
+- 🎉 I’m interested in ... novidades
 - ✨ I’m currently learning ... aulas sobre programação
-- 💕 I’m looking to collaborate on ... nada
+- 💕 I’m looking to collaborate on ... criatividade
 - 🏃‍♂️ How to reach me ... sumindo
 - :sunglasses: Tentando aprender programação :)
 - :flushed: Se for um velho rico,favor mandar um pix!
